@@ -1,0 +1,1 @@
+Cut the strawberries into cubes and put it in ready-made lemonade. Blend it together in a blender. Tada!
